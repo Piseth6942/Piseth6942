@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Piseth6942
+- 👀 I’m interested in Developer
+- 🌱 I’m currently learning about programing.
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: There's a 50% chance that two people will share a birthday in a group of 23 people
